@@ -1,0 +1,1 @@
+# PrivacyCompliance_LGPD_GDPR
